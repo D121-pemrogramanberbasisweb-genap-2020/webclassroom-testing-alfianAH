@@ -1,3 +1,3 @@
-Nama : 
+Nama : Alfian Aldy Hamdani
 
-NIM  :
+NIM  : D121181001
